@@ -7,7 +7,8 @@ This repository documents the concept, pitch, and visual structure of **The Crea
 ## Creator:
 Margarita Ivanova  
 Founder & Concept Designer  
-✉️ ivanova.margarita@student.greenriver.edu  
+✉️ ivanova.margarita@student.greenriver.edu
+✉️ mssmrgx@icloud.com
 🌐 https://www.scene404.com  
 📸 Instagram: @scene404.studio | @predominanceee
 
